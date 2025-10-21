@@ -66,7 +66,7 @@ We’ll soon open channels for:
 
 To stay updated:
 - 🌐 [brainyard.ai](https://brainyard.ai)  
-- 👾 [discord](https://discord.gg/4eFZYkEka6)  
+- 👾 [discord](https://discord.gg/6veV2jZ3RT)  
 
 ---
 
